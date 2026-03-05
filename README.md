@@ -99,7 +99,7 @@
 - 🔹 [50.000.000$ Ferrari 💸](https://www.youtube.com/shorts/XV_TKvZyg8Q)
 🇬🇷 [50.000.000$ Ferrari 💸]
 
-- 🔹 [GRWM for the Movie](https://www.youtube.com/shorts/qONraiYOxjo)
+- 🔹 [GRWM for the Movie!](https://www.youtube.com/shorts/qONraiYOxjo)
 🇬🇷 [GRWM για την Ταινία!]
 
 - 🔹 [LEGIT CAME FOR THE FOOD 😂](https://www.youtube.com/shorts/7DIHkJnLkg0)
