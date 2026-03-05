@@ -149,6 +149,9 @@
 
 - 🔗 [I put on the NIGHT DWELLER without telling her.](https://youtu.be/0OysUmiWiqw?si=6QS3wlnYEnbi0Xe4)
 🇬🇷 Title : [Εβαλα τον ΝIGHT DWELLER χΩρίς να της το πΩ..]
+
+- 🔗 [GIANT ALEX wants to KILL ΜΕ](https://www.youtube.com/watch?v=ajZQarUqiDw&t=16s)
+🇬🇷 Title : [Η GIANT ALEX θέλει να με ΣΚΟΤΩΣΕΙ]
 ─────────────────────────────────────────────────────────────────────────────────────────
  ## 📱 [Youtube Channel - W1ndzBlox](https://www.youtube.com/@W1ndzBlox)
 
@@ -160,6 +163,13 @@
 
 - 🔗 [I ESCAPED from the QUICKSAND for the GODLY BRAINROT.](https://youtu.be/G6ZKVcZeNG0?si=woUCxqBsnsSVcZZi)
 🇬🇷 Title : [ΓΛΙΤΩΣΑ από την ΚΙΝΟΥΜΕΝΗ ΑΜΜΟ για τα GODLY BRAINROT.]
+
+- 🔗 [I COLLECTED the most SECRET PLANTS in the NEW GARDEN HORIZONS](https://www.youtube.com/watch?v=I8lfN7oWPPw)
+🇬🇷 Title : [ΜΑΖΕΨΑ τα πιο ΜΥΣΤΙΚΑ ΦΥΤΑ στο ΝΕΟ GARDEN HORIZONS]
+
+- 🔗 [I played FAKE Escape The Tsunami games](https://www.youtube.com/watch?v=F7yro8X60yo)
+🇬🇷 Title : [Έπαιξα ΨΕΥΤΙΚΑ Escape The Tsunami Παιχνίδια]
+
 
 
 
