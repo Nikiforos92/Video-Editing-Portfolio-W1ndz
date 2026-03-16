@@ -75,8 +75,8 @@
 - 🔗 [I Made My Own Annoying Level in Fall Guys!](https://youtu.be/SfH1N4I6Hq4?si=FZUQHoZ62sy3QB_t)
 🇬🇷 [ΕΦΤΙΑΞΑ ΤΗΝ ΔΙΚΗ ΜΟΥ ΕΝΟΧΛΗΤΙΚΗ ΠΙΣΤΑ ΣΤΟ FALL GUYS!]
 
-- 🔗 [I Made My Own Annoying Level in Fall Guys!](https://youtu.be/SfH1N4I6Hq4?si=FZUQHoZ62sy3QB_t)
-🇬🇷 [ΕΦΤΙΑΞΑ ΤΗΝ ΔΙΚΗ ΜΟΥ ΕΝΟΧΛΗΤΙΚΗ ΠΙΣΤΑ ΣΤΟ FALL GUYS!]
+- 🔗 [Every CLICK = PAIN but he pays you..](https://youtu.be/R7RlM3lqQlo?is=vv_AY-JOFhXjk37H)
+🇬🇷 [Κάθε ΚΛΙΚ = ΠΟΝΟΣ αλλά σε πληρώνει..]
 
 - 🔗 [I LAUGHED so hard playing this game](https://youtu.be/TKEBRwflK68?is=OBMyxlebDHV1QVdX)
 🇬🇷 [ΈΚΛΑΨΑ από τα ΓΈΛΙΑ με αυτό το παιχνίδι]
