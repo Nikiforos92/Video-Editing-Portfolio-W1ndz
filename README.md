@@ -80,6 +80,8 @@
 - 🔗 [I LAUGHED so hard playing this game](https://youtu.be/TKEBRwflK68?is=OBMyxlebDHV1QVdX)
 🇬🇷 [ΈΚΛΑΨΑ από τα ΓΈΛΙΑ με αυτό το παιχνίδι]
 
+- 🔗 [IF YOU SURVIVE for 7 days… you leave ALIVE!](https://www.youtube.com/watch?v=E8BCkk5lqQA&t=93s)
+🇬🇷 [Αν ΕΠΙΒΙΩΣΕΙΣ για 7 μέρες...φεύγεις ΖΩΝΤΑΝΟΣ!]
 ─────────────────────────────────────────────────────────────────────────────────────────
    ## 📱 [Youtube Channel - Shorts - W1ndz](https://www.youtube.com/@W1ndzOfficial)
    
