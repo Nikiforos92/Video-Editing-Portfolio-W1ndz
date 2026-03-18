@@ -203,6 +203,9 @@
 
 - 🔗 [GIANT ALEX wants to KILL ΜΕ](https://www.youtube.com/watch?v=ajZQarUqiDw&t=16s)
 🇬🇷 Title : [Η GIANT ALEX θέλει να με ΣΚΟΤΩΣΕΙ]
+
+- 🔗 [GOATMAN DWELLER gave me NIGHTMARES after this..](https://www.youtube.com/watch?v=mcrFBmCyOF0&t=2197s)
+🇬🇷 Title : [Ο GOATMAN DWELLER μου προκάλεσε ΕΦΙΑΛΤΕΣ μετά από αυτό..]
 ─────────────────────────────────────────────────────────────────────────────────────────
  ## 📱 [Youtube Channel - W1ndzBlox](https://www.youtube.com/@W1ndzBlox)
 
