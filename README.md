@@ -1,4 +1,3 @@
-─────────────────────────────────────────────────────────────────────────────────────────
 ## 🎮 YouTube Gaming Videos | Channels: W1ndz / MoreW1ndz / W1ndzIRL
 ─────────────────────────────────────────────────────────────────────────────────────────
   ## 📱 [Youtube Channel - W1ndz](https://www.youtube.com/@W1ndzOfficial)
