@@ -208,6 +208,12 @@
 
 - 🔗 [GOATMAN DWELLER gave me NIGHTMARES after this..](https://www.youtube.com/watch?v=mcrFBmCyOF0&t=2197s)
 🇬🇷 Title : [Ο GOATMAN DWELLER μου προκάλεσε ΕΦΙΑΛΤΕΣ μετά από αυτό..]
+
+- 🔗 [TRAPPED in the LAND of... MONSTERS!](https://www.youtube.com/watch?v=gXzZUdOvnGE)
+🇬🇷 Title : [Παγιδευμένος στην ΧΩΡΑ των...ΤΕΡΑΤΩΝ!]
+
+- 🔗 [IN THIS WORLD… I AM THE MONSTER](https://www.youtube.com/watch?v=Nrop_Um8Aq4)
+🇬🇷 Title : [Σε αυτόν τον κόσμο ΕΓΏ είμαι...ΤΟ ΤΕΡΑΣ]
 ─────────────────────────────────────────────────────────────────────────────────────────
  ## 📱 [Youtube Channel - W1ndzBlox](https://www.youtube.com/@W1ndzBlox)
 
@@ -223,10 +229,17 @@
 - 🔗 [I COLLECTED the most SECRET PLANTS in the NEW GARDEN HORIZONS](https://www.youtube.com/watch?v=I8lfN7oWPPw)
 🇬🇷 Title : [ΜΑΖΕΨΑ τα πιο ΜΥΣΤΙΚΑ ΦΥΤΑ στο ΝΕΟ GARDEN HORIZONS]
 
-- 🔗 [I played FAKE Escape The Tsunami games](https://www.youtube.com/watch?v=F7yro8X60yo)
-🇬🇷 Title : [Έπαιξα ΨΕΥΤΙΚΑ Escape The Tsunami Παιχνίδια]
+- 🔗 [JUMP HIGH for the DIVINE BRAINROT in Jump For Brainrots](https://www.youtube.com/watch?v=ARv_N8AwhnI)
+🇬🇷 Title : [ΠΗΔΑ ΨΗΛΑ για τα DIVINE BRAINROT στο Jump For Brainrots]
 
+- 🔗 [The ADMIN GAVE ME ALL the MUTATIONS in Grow a Garden 2](https://www.youtube.com/watch?v=VI6TGRbKVEM)
+🇬🇷 Title : [Ο ADMIN μου έδωσε ΟΛΑ ΤΑ MUTATION στο GROW A GARDEN 2]
 
+- 🔗 [SETTING SAIL with a SHIP for the MOST GODLY BRAINROT](https://www.youtube.com/watch?v=D7bEa7OXEnM)
+🇬🇷 Title : [ΣΑΛΠΑΡΩ με το ΠΛΟΙΟ για τα ΠΙΟ GODLY BRAINROT]
+
+- 🔗 [I SPENT €7,582,934 on the BIGGEST WATER SLIDE in Roblox](https://www.youtube.com/watch?v=scF-hu8V3jw)
+🇬🇷 Title : [Ξόδεψα 7,582,934€ για την ΜΕΓΑΛΥΤΕΡΗ ΝΕΡΟΤΣΟΥΛΗΘΡΑ στο ROBLOX]
 
 
 
